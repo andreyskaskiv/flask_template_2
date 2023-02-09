@@ -1,0 +1,1 @@
+1.  ![ver_01.png](..%2F..%2FUsers%2Fuser%2FDesktop%2Fver_01.png)
